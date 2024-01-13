@@ -1,5 +1,5 @@
 # 🧐More details
-I want to share with you a free hack for the game Rust 2023 on Steam with a convenient graphical interface and a wide range of functions. which will be useful for every Rust player. By downloading and installing this hack, you will be able to activate the following features: ESP, Weapon Customization, Spiderman, Fake Lag, Low Gravity, Fly Hack, Admin Flag and other features.
+I want to share with you a free hack for the game Rust 2024 on Steam with a convenient graphical interface and a wide range of functions. which will be useful for every Rust player. By downloading and installing this hack, you will be able to activate the following features: ESP, Weapon Customization, Spiderman, Fake Lag, Low Gravity, Fly Hack, Admin Flag and other features.
 
 # 💎Features:
 - Box ESP
